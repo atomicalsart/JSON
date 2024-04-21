@@ -1,0 +1,1 @@
+Atomicals Art redefines the creative landscape within the Bitcoin blockchain's ARC20 protocol. A new era has begun of digital expression. Reminder: Two payments will be required to obtain the digital object, avoid making the payment twice, please wait for the second payment to complete. 150 digital object with the term "AVM" will be routed directly to the AVM donation wallet.
